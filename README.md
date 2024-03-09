@@ -1,10 +1,10 @@
 # Play2x-Script-New-18-Slots-Games
-18 new slot games, the games are cracked and are included in the source files, do not require API.<br><br>
 ![1-min](https://github.com/BetCodex/Play2x-Script-New-18-Slots-Games/assets/162466962/23437cb7-50d1-47f3-a8fa-3df7935269f0)
 <br><br>
+18 new slot games, the games are cracked and are included in the source files, do not require API.<br><br>
 <b>Video:</b> https://youtu.be/bmMWT8_szS4
 <br><br>
-<b>Link:</b> https://betcodex.com/en/item/play2x-script-new-18-slots-games
+<b>Link:</b> https://betcodex.com/item/play2x-script-new-18-slots-games
 <br>
 <br>
 <b>Game List:</b><br>
